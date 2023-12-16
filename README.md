@@ -18,4 +18,4 @@ Technologies Used:
 HTML5
 CSS3 
 
-For questions or suggestions, feel free to reach out to us at fenilramani4007@gmail.com.
+For questions or suggestions, feel free to reach out to us at my instagram account (fenil_ramani_07)
